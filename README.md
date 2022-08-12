@@ -1,0 +1,1 @@
+# amolatar-secondary-school
